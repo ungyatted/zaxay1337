@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @zaxay1337
+- 👀 Follow Me on Twitch! twitch.tv/zaxay1337
+- 🌱 Add me on discord !𝔃𝓪𝔁𝓪𝔂💸#9999
+- 📫 zzaxayyy@gmail.com
