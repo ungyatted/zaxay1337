@@ -1,4 +1,7 @@
-- 👋 Hi, I’m @zaxay3315!
-- 👀 Follow Me on Twitch! twitch.tv/zaxay1337
-- 🌱 Add me on discord zaxay#3315
-- 📫 -
+- 👋 Hi, I am hhlol!
+- 👀 
+- 🌱 I Live in Hungary!
+- 📫 Im Learning Java, Python, HTML.
+- 💻 Feel free to contact me anywhere about everything.
+- 🎈 hhlol#7999 | t.me/hh1ol | https://twitter.com/ogzaxay
+- 🎯 Currently im working on some Projects...
